@@ -11,3 +11,6 @@ Dave on Dave: ["If we based things on performance you'd never hold office"](http
 ## Stupid things Dave Alvord has said
 ![davelovesputin](/docs/assets/img/dave_alvord_loves_putin.jpg)
 Maybe Dave would feel differently if Britain decided to reclaim the United States?
+
+![daveisanedgelord](/docs/assets/img/dave_is_an_edgelord.jpg)
+Dave Alvord once again demonstrating he cares about nobody but himself.
