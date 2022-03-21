@@ -1,5 +1,5 @@
 ## Sexist things Dave Alvord has said
-![davehateswomen](/docs/assets/img/dave_hates_women_.jpg)
+![davehateswomen](/docs/assets/img/dave_hates_women.jpg)
 
 Dave on Dave: ["If we based things on performance you'd never hold office"](https://twitter.com/NateForUtah/status/1505560480990969863/photo/1)
 
