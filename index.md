@@ -1,3 +1,7 @@
+## Dave doesn't know how pregnancy works
+![davehateswomen2](/docs/assets/img/dave_hates_women_2.jpg)
+
+
 ## Sexist things Dave Alvord has said
 ![davehateswomen](/docs/assets/img/dave_hates_women.jpg)
 
