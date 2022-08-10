@@ -1,6 +1,6 @@
 ## Dave doesn't know how pregnancy works
 ![davehateswomen2](/docs/assets/img/dave_hates_women_2.jpg)
-
+Of course Dave Alvord would try to mansplain how pregnancy works to an actual woman.
 
 ## Sexist things Dave Alvord has said
 ![davehateswomen](/docs/assets/img/dave_hates_women.jpg)
